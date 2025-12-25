@@ -5,4 +5,4 @@
  ㅤ⠀ㅤ⠀
 ㅤ<p align="center">UPDATE!! more than 200 atabooks have been signed! and thank you for all the support!! <br></p>
 
-ㅤ
+ㅤㅤ<p align="center">reminder!! : on 25/12 i wont sign atabooks / sign only some since im going out for chrtistmas! merry christmas!<br></p>
