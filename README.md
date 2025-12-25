@@ -7,4 +7,4 @@
 
 ㅤㅤ<p align="center">reminder!! : on 25/12 i wont sign atabooks / sign only some since im going out for chrtistmas! merry christmas!<br></p>
 
-ㅤㅤ<p align="center">CHECK OUT MY OOMF GUYS @strawpagepainter <br></p>
+ㅤㅤ<p align="center">CHECK OUT MY OOMF GUYS [@strawpagepainter](https://github.com/strawpagepainter) <br></p>
