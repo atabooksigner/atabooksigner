@@ -4,9 +4,10 @@
 <p align="center"><img width="671" height="278" alt="image" src="https://github.com/user-attachments/assets/e6bcd5f8-f785-41ef-940c-2532d3bcac62" /> <br></p>
  ㅤ⠀ㅤ⠀
 <p align="center">UPDATE!! more than 200 atabooks have been signed! and thank you for all the support!!  <br></p>
-
-ㅤ<p align="center">CHECK OUT MY OOMF GUYS [@strawpagepainter](https://github./strawpagepainter) <br></p>
-
+ ㅤ⠀
 ㅤ<p align="center"> i will be on hiatus for signing atabooks until 5th of january or more due to school sobs  <br></p>
-
+ㅤ ㅤ⠀
+ㅤ<p align="center">CHECK OUT MY OOMF GUYS [@strawpagepainter](https://github./strawpagepainter) <br></p>
+ㅤ ㅤ⠀
 ㅤ<p align="center">follow my main !!! [@minebranzycraft](https://github./minebranzycraft) <br></p>
+ ㅤ⠀
