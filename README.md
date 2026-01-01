@@ -6,3 +6,5 @@
 ㅤ<p align="center">UPDATE!! more than 200 atabooks have been signed! and thank you for all the support!! <br></p>
 
 ㅤㅤ<p align="center">CHECK OUT MY OOMF GUYS [@strawpagepainter](https://github.com/strawpagepainter) <br></p>
+
+ㅤ<p align="center"> i will be on hiatus for signing atabooks until 5th of january or more due to school sobs  <br></p>
