@@ -7,5 +7,5 @@
 
 ㅤ ㅤ⠀<p align="center"> i will be on semi hiatus for signing atabooks due to school sobs  <br></p>
 
-ㅤ<p align="center">CHECK OUT MY OOMF GUYS [@strawpagepainter](https://github./strawpagepainter) AND MY MAIN [@minebranzycraft](https://github./minebranzycraft) !!! <br></p>
+ㅤ<p align="center">CHECK OUT MY OOMF GUYS [@strawpagepainter](https://github./strawpagepainter) AND MY MAIN [@tigerprint](https://github./tigerprint) !!! <br></p>
  ㅤ⠀
