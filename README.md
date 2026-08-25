@@ -7,5 +7,4 @@
 
 ㅤ ㅤ⠀<p align="center"> i will be on hiatus for signing atabooks aint signing any until end of hiatus <br></p>
 
-ㅤ<p align="center">CHECK OUT MY OOMF GUYS [@strawpagepainter](https://github./strawpagepainter) AND MY MAIN [@tigersprint](https://github./tigersprint) !!! <br></p>
  ㅤ⠀
